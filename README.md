@@ -17,3 +17,7 @@ Defining the problem. What exactly does it mean for an AI system to be aware of 
 Gathering data. How can we collect data on the cognitive processes of AI systems? This is a difficult task, as it requires us to be able to understand the inner workings of these systems.
 Developing algorithms. How can we develop algorithms that can model the cognitive processes of AI systems? This is a complex task, as it requires us to understand the underlying principles of human cognition.
 Despite the challenges, Supra Meta Cognition AI is a promising area of research. If we are able to create such AI systems, they could have a profound impact on our understanding of intelligence and the development of new technologies.
+
+other stuff
+polar Rio Tinto MinenWide Anti Gravity or Electro Magnetic Freight Elevators.
+Port like. Vertical Ocean idea.
