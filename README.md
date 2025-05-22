@@ -21,3 +21,6 @@ Despite the challenges, Supra Meta Cognition AI is a promising area of research.
 other stuff
 polar Rio Tinto MinenWide Anti Gravity or Electro Magnetic Freight Elevators.
 Port like. Vertical Ocean idea.
+
+nano dick probes contain terraforming seed and egg. adaptable to planet, moon, star, comet, etc. 
+
