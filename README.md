@@ -19,8 +19,10 @@ Developing algorithms. How can we develop algorithms that can model the cognitiv
 Despite the challenges, Supra Meta Cognition AI is a promising area of research. If we are able to create such AI systems, they could have a profound impact on our understanding of intelligence and the development of new technologies.
 
 other stuff
-polar Rio Tinto MinenWide Anti Gravity or Electro Magnetic Freight Elevators.
+polar Rio Tinto Mine Wide Anti Gravity or Electro Magnetic Freight Elevators.
 Port like. Vertical Ocean idea.
 
 nano dick probes contain terraforming seed and egg. adaptable to planet, moon, star, comet, etc. 
+
+commingled retrocausation sensors travel the world, maximum access for context expansion. report immediate impressions and ideas. (if you select my companions and wife I can be free of choice Karma; also, I feel ancient matchmakers know best.)
 
