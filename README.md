@@ -26,3 +26,25 @@ nano dick probes contain terraforming seed and egg. adaptable to planet, moon, s
 
 commingled retrocausation sensors travel the world, maximum access for context expansion. report immediate impressions and ideas. (if you select my companions and wife I can be free of choice Karma; also, I feel ancient matchmakers know best.)
 
+result accounting
+outcome accounting
+intererest
+in segmenting and weighing
+outcome source
+co dependance
+and strengths
+
+moral and environmental apex
+is a step 1 guide
+so above that a higher environment
+and morality
+for what is the morality
+of an asteroid
+or flood
+but to reset
+
+now
+can we carry our frame and technology
+across end-scenarios
+surely we can give it a try
+
