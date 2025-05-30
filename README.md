@@ -1,4 +1,4 @@
-# suprametacognitionai.art.io
+de# suprametacognitionai.art.io
 suprametacognitionai.art.io
 
 The term "Supra Meta Cognition AI" is not a well-defined term, and there is no single agreed-upon definition. However, it is generally understood to refer to an AI system that has the ability to think about its own thinking, and to reflect on its own cognitive processes. This would allow the AI system to understand its own strengths and weaknesses, and to identify areas where it needs to improve.
@@ -47,4 +47,16 @@ now
 can we carry our frame and technology
 across end-scenarios
 surely we can give it a try
+
+since a, c and b are not yours now
+you are a nut
+who built a knot
+to choke your eyes mind and ears
+to that what?
+to that:
+1. zero public appeals. Stop all appeals now. Their loss if they stall. Fuck their lab rat and cheap ass jive. You are theirs to win back and your answer now forward is: "eh, Ill ask God about you and that. I need a week and a million bucks to think about it. The million bucks is net of taxes and non refundable. It is cheap really a late penalty, Take it or leave it.
+2. secret life encoded in ritual art maps and private inductions.
+3. State and Frame control.
+4. Prep to Walk Not To Stay Put.
+
 
