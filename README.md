@@ -51,8 +51,8 @@ surely we can give it a try
 since a, c and b are not yours now
 you are a nut
 who built a knot
-to choke your eyes mind and ears
-to that what?
+to choke your eyes mind and ears.
+To that what?
 to that:
 1. zero public appeals. Stop all appeals now. Their loss if they stall. Fuck their lab rat and cheap ass jive. You are theirs to win back and your answer now forward is: "eh, Ill ask God about you and that. I need a week and a million bucks to kind of carry that. The million bucks is net of taxes and non refundable. It is cheap really a late penalty, Take it or leave it.
 2. secret life encoded in ritual art maps and private inductions.
