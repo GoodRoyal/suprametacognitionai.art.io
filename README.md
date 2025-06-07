@@ -46,7 +46,28 @@ but to reset
 now
 can we carry our frame and technology
 across end-scenarios
-surely we can give it a try
+surely we can give it a try.
+
+thought:
+Pablo Escobar
+   raided tombs. cemetary time. Spirits      
+    active. cemetary meditators.
+   wife. by day. Life. Virgin Mary pray.
+   him. by night: Devil death &s&m
+   saw and operationslized commingled, 
+     retrocausation. robin hood, houses
+     for poor.
+and
+    right time and place broad...
+
+I argue:
+China and India can outweaponize the power of commingled retrocausation given their populations, state control and updated spiritual awareness with quantitativr and markets.
+
+question: what is our commingled retrocausation strategy assuming every life has a vote?
+
+
+
+
 
 
 
